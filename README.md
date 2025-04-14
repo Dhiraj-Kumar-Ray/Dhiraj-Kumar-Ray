@@ -6,7 +6,7 @@
 
 - 💬 Ask me about **Programming , WEB DEV(Frontend)**
 
-- 📫 How to reach me **tmkdj007@gamil.com**
+- 📫 How to reach me **dhirajkumarray721@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
